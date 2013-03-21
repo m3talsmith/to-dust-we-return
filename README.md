@@ -1,6 +1,8 @@
 To Dust We Return
 =================
 
+In the recesses of space, a ship has been exploring the gas clouds of planetary creation, travelling through light years of time, parsing the mysteries in person forever.
+
 About This Book
 ---------------
 
